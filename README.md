@@ -1,0 +1,1 @@
+Dergi yazilari.
